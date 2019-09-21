@@ -1,1 +1,1 @@
-# internet-yura
+# internet-art
